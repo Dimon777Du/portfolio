@@ -6,7 +6,7 @@
 💬 Telegram: [t.me/DmitriyDumm](https://t.me/DmitriyDumm)  
 🐙 GitHub: [github.com/Dimon777Du](https://github.com/Dimon777Du)
 
-🪖 MAX: [6max.ru/dmitriy]
+🪖 MAX: [https://max.ru/6max.ru/dmitriy]
 
 ---
 
